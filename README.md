@@ -1,0 +1,1 @@
+# wbz-blog-image
